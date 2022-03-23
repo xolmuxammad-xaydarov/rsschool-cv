@@ -1,6 +1,6 @@
 
 # Xolmuxammad Xaydarov
-hello 
+
 
 ### Contacts:
 
